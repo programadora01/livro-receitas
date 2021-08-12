@@ -4,3 +4,4 @@ Seja bem vindos ao meu livro de receitas
 
 - Macarronada
 - Frango Assado
+- Strogonoff
