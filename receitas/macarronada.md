@@ -6,7 +6,7 @@
 
 #### Rendimento da receita
 
-##### Dicas de chefe
+##### Dicas da vovó
 
 
 
